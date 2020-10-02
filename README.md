@@ -19,5 +19,6 @@ The easiest way to ensure your business stays relevant is to keep abreast of key
 
 AND MANY MORE
 
-<h1><b> CONCLUSION <h1></b>
+<h1><b> CONCLUSION </h1></b>
+  
 <p> Since the digital marketing industry is always changing, you must keep up-to-date with the most recent research and trends. I hope these statistics will give you insight into the digital marketing world and shed light on some of the marketing strategies that your rivals use. They’ll also give you ideas that you can adopt to help your business remain competitive, and perhaps even get ahead of the curve.</p>
